@@ -1,0 +1,2 @@
+# ganpatirathia.in
+personal website
